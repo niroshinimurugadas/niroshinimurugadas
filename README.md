@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @niroshinimurugadas
+- 🌱 I’m currently doing my b.tech computer science and bussiness system in panimalar engineering college...
+
